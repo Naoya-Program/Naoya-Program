@@ -1,5 +1,4 @@
-👋 Hi, I’m @Naoya-Program
-
+👋 Hi, I’m Naoya.
 I’m interested in 📷camera,🖥️home electronics　&　PC, 🎧music etc..
 
 I am learning programming.👀
