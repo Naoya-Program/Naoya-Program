@@ -1,5 +1,5 @@
 👋 Hi, I’m Naoya.
-I’m interested in 📷camera,🖥️home electronics　&　PC, 🎧music etc..
+I’m interested in 📷camera,🖥️home electronics&PC,🎧music etc..
 
 I am learning programming.👀
 I will work hard to become an engineer.
